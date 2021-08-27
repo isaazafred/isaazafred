@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Isabel
+- 👀 I’m interested in a lot os things, especially learning new abilities and skills
+- 🌱 I’m currently learning UX design and how to speak Korean!
+- 💞️ I’m looking to collaborate on my research group GELinC
+- 📫 How to reach me email me <isaazafred@gmail.com> or my studygram @isacademie
